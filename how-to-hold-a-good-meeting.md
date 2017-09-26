@@ -391,7 +391,7 @@ a good price on paper clips** and who should pick them up.
 
 Something an old Wobbly taught us (along with most of the rest of
 this) is to **always conduct your meeting as if there were a
-hundred people there, to be ready when the times comes when
+hundred people there, to be ready when the time comes when
 there are a hundred people there**. Sound advice. For instance,
 it’s a good idea to get people to stand up to speak. It helps us all
 hear, and gives us all a little experience speaking to a group. Makes
